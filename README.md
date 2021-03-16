@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @shaianest
-- 👀 I’m interested in programs and developers and automation
+- 👀 I’m interested in agriculture aquaponic and programs then developers and automation
 - 🌱 I’m currently learning web front end
 - 💞️ I’m looking to collaborate in college
 - 📫 How to reach me shaian.kiany1@gmail.com
